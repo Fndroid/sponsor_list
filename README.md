@@ -1,2 +1,5 @@
 # sponsor_list
-Sponsor list of all my projects
+
+所有项目的打赏名单，感谢各位的支持
+
+[查看名单]()
