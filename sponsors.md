@@ -4,6 +4,10 @@
 
 > 不区分项目类型，统一汇总
 
+- Qing
+- Tom
+- Nicked
+- 水长东
 - 手艺人
 - Real
 - 毕 世平
@@ -59,7 +63,6 @@
 - plplpmmmmh
 - ngsooooo
 - Mornwind
-- Nicked
 - Wangsc1 M
 
 衷心感谢对我支持的各位！
