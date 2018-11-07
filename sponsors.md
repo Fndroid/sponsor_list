@@ -6,7 +6,10 @@
 
 > 事情太多，如有遗漏，请TG联系，感谢
 
+- WithCB
+- baiyian
 - yumenaka
+- Cheung leung
 - w zh
 - MBX
 - Qing
@@ -24,7 +27,6 @@
 - Tartarus
 - Ceosun
 - Qing
-- Cheung leung
 - naier1860
 - somechemer
 - Rogers
