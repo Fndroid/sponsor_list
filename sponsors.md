@@ -6,6 +6,7 @@
 
 > 事情太多，如有遗漏，请TG联系，感谢
 
+- Masayoshi Son
 - Nicklaus1212
 - digitalboy
 - Rhys
