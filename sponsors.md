@@ -6,6 +6,7 @@
 
 > 事情太多，如有遗漏，请TG联系，感谢
 
+- Kun Chen
 - Hybird You
 - eStarP.Clearlove
 - 💫𝑵𝒊𝒈𝒉𝒕 𝑲𝒊𝒏𝒈
