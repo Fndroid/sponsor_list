@@ -6,6 +6,12 @@
 
 > 事情太多，如有遗漏，请TG联系，感谢
 
+- Hybird You
+- eStarP.Clearlove
+- 💫𝑵𝒊𝒈𝒉𝒕 𝑲𝒊𝒏𝒈
+- iMusi
+- meldonization
+- 未名。
 - Masayoshi Son
 - Nicklaus1212
 - digitalboy
