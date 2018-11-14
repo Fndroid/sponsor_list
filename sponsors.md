@@ -6,6 +6,9 @@
 
 > 事情太多，如有遗漏，请TG联系，感谢
 
+- @congcong
+- 🈳️ U+7A7A 🔰
+- B Li
 - Kun Chen
 - Hybird You
 - eStarP.Clearlove
