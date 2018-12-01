@@ -6,6 +6,10 @@
 
 > 事情太多，如有遗漏，请TG联系，感谢
 
+- fengzhiyang
+- lcmig
+- 𝗶𝗣𝗵𝗼𝗻𝗲 𝗢𝗦🤣
+- Vincent Chen
 - binnp
 - Zach
 - jokerqing
